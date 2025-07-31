@@ -1,2 +1,2 @@
-# NGUY-N-CH-NH-AI
+# NGUYỄN CHÍNH AI
 VẤN ĐỀ VỀ AI VIDEO
