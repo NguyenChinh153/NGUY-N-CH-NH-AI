@@ -1,0 +1,2 @@
+# NGUY-N-CH-NH-AI
+VẤN ĐỀ VỀ AI VIDEO
